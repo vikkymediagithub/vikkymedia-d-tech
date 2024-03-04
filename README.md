@@ -1,1 +1,1 @@
-# vikkymedia-technologies
+# VIKKYMEDIA D-TECH
